@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rayhaofeng
-- 👀 I’m interested in FORTNITE
+- 👀 I’m interested in my coding skills.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on nothing. thats against the honor code.
 - 📫 How to reach me call me on my telephone
